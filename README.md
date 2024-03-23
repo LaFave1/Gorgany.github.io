@@ -1,1 +1,0 @@
-# Gorgany.github.io
